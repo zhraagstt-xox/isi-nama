@@ -1,2 +1,0 @@
-# isi-nama
-dwerh
